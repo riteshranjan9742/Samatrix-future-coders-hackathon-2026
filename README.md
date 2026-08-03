@@ -113,5 +113,5 @@ Business-Performance-Dashboard/
 
 Ritesh Ranjan
 
-LinkedIn: (Your LinkedIn Profile)
+LinkedIn: (www.linkedin.com/in/ritesh-ranjan-0089553b5)
 
